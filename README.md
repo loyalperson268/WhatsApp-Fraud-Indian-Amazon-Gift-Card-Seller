@@ -1,7 +1,7 @@
 # WhatsApp-Fraud-Indian-Amazon-Gift-Card-Seller
 Scammer Alert Fraud Alert to Indian
 
-BEWARE of this kind of person:
+BEWARE of this kind of person & Don't Fall for it: FRUAD, SCAM..
 
 https://t.me/EXPRESSVPNS
 🧵Powered By :- @HOTSTARCNETWORK
@@ -114,12 +114,18 @@ https://t.me/EXPRESSVPNS
 
 ⭐️ For Buying Msg Me Here https://wa.me/message/2IRU55HA3TVHP1
 
++1 (289) 797-1355
+
 Here is the info of that guy
-PAYTM Requested: 
+PAYTM/UPI/BTC Requested: 
+
 +1 (289) 277-5850: raintha@ibl
+
 +1 (289) 277-5850: 8847876975@paytm
 
-https://i.imgur.com/GPvjYhY.jpg
-https://i.imgur.com/VatjwzM.jpg
++1 (289) 797-1355: 1Nc4iGNsgQkGQZF85ajpeaugssr3DhSpcA
+
+<img src="https://i.imgur.com/GPvjYhY.jpg" />
+<img src="https://i.imgur.com/VatjwzM.jpg" />
 
 # Don't Fall to this kind of Fraud/Scam
