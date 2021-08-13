@@ -128,4 +128,6 @@ PAYTM/UPI/BTC Requested:
 <img src="https://i.imgur.com/GPvjYhY.jpg" />
 <img src="https://i.imgur.com/VatjwzM.jpg" />
 
-# Don't Fall to this kind of Fraud/Scam
+# Don't Fall to this kind of Fraud/Scam People
+<img src="https://i.imgur.com/hDYTThk.jpg" />
+
