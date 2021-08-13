@@ -1,4 +1,4 @@
-# WhatsApp Telegram Amazon gift Card Flipkart Gift Card Seller and other
+# Fraud/Scam People on WhatsApp Telegram selling Amazon gift Card Flipkart Gift Card Seller plus other
 Scammer Alert Fraud Alert to Indian
 
 BEWARE of this kind of person & Don't Fall for it: FRUAD, SCAM..
