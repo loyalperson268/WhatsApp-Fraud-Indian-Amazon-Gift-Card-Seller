@@ -89,8 +89,8 @@ https://t.me/EXPRESSVPNS
 4. Bang.com - ₹500 (yearly) 
 5. Naughty America - ₹490 (yearly)
 6. Bangbros - ₹480 (yearly) 
-7. Pornhub - ₹470 (yearly) 
-8. PornPortal Premium Accounts - ₹700 (yearly) 
+7. P0rnhub - ₹470 (yearly) 
+8. P0rnPortal Premium Accounts - ₹700 (yearly) 
 
               💢 Giftcard For Amazon & Flipkart 💢
 1. 1000₹ gift card at 350₹
